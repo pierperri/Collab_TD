@@ -1,3 +1,3 @@
-Salut, c'est moi theo !
+Salut, c'est moi Theo !
 
 Normandie > Bretagne 🥃
